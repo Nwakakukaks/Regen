@@ -7,4 +7,4 @@ submission for encode x mantle hackathon
 
 [video link](https://youtu.be/3eoSxtIWKEw)
 
-[Audio link](https://drive.google.com/file/d/1A7QgpVanjjRS52dwkZVypf0Y66od2oXv/view?usp=sharing)
+[Audio link](https://drive.google.com/file/d/1PWMzjSoW_Bcsa0dWJ8EUhpJcBymY4uZR/view?usp=sharing)
